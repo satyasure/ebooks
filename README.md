@@ -113,6 +113,64 @@ Crédit Agricole CIB, as part of the larger Crédit Agricole Group, has been inv
 4. **Greater Paris Metropolis**:
    - As part of the broader Grand Paris initiative, Crédit Agricole CIB has been involved in financing various infrastructure projects aimed at transforming the metropolitan area, improving transportation, housing, and economic opportunities.
 
+Crédit Agricole CIB, as a prominent global corporate and investment bank, has been involved in numerous major projects worldwide. These projects span various sectors including infrastructure, energy, real estate, and sustainable finance. Here are some notable examples:
+
+### Europe
+
+1. **Offshore Wind Farms (United Kingdom)**
+   - **Hornsea Project One**: Crédit Agricole CIB was a key player in the financing of Hornsea Project One, the world's largest offshore wind farm located off the coast of the UK. The project contributes significantly to renewable energy generation.
+
+2. **High-Speed Rail Projects (Spain)**
+   - **AVE High-Speed Rail Network**: The bank has been involved in financing parts of Spain’s AVE high-speed rail network, which enhances connectivity and promotes economic development across the country.
+
+### North America
+
+1. **Renewable Energy (United States)**
+   - **Desert Sunlight Solar Farm**: Crédit Agricole CIB participated in the financing of the Desert Sunlight Solar Farm in California, one of the largest solar power plants in the world. This project supports the transition to renewable energy in the US.
+
+2. **Infrastructure Development (Canada)**
+   - **Champlain Bridge Replacement**: The bank was involved in financing the construction of the new Champlain Bridge in Montreal, which is one of Canada's most important infrastructure projects.
+
+### Asia-Pacific
+
+1. **Integrated Resorts (Singapore)**
+   - **Marina Bay Sands**: As mentioned previously, Crédit Agricole CIB was a lead arranger and bookrunner for the financing of the Marina Bay Sands integrated resort, a landmark project in Singapore.
+
+2. **Renewable Energy (Australia)**
+   - **Snowy 2.0 Hydro Project**: The bank played a role in financing the Snowy 2.0 project, a major pumped hydro expansion in Australia that aims to provide significant renewable energy storage capacity.
+
+### Middle East
+
+1. **Airport Expansion (United Arab Emirates)**
+   - **Abu Dhabi International Airport Midfield Terminal**: Crédit Agricole CIB was involved in financing the expansion of Abu Dhabi International Airport, which aims to enhance the airport's capacity and improve passenger experience.
+
+2. **Desalination Plants (Saudi Arabia)**
+   - **Ras Al Khair Desalination Plant**: The bank participated in financing the Ras Al Khair desalination plant, one of the largest in the world, providing critical water supply to the region.
+
+### Africa
+
+1. **Energy Projects (South Africa)**
+   - **Kathu Solar Park**: Crédit Agricole CIB was a financier for the Kathu Solar Park in South Africa, a major concentrated solar power (CSP) plant that contributes to the country's renewable energy capacity.
+
+2. **Port Expansion (Morocco)**
+   - **Tanger Med Port**: The bank has been involved in financing the expansion of Tanger Med Port, a key logistics and trade hub in North Africa, enhancing the region's economic infrastructure.
+
+### Latin America
+
+1. **Renewable Energy (Brazil)**
+   - **São João Wind Farm**: Crédit Agricole CIB provided financing for the São João Wind Farm in Brazil, supporting the country’s renewable energy initiatives.
+
+2. **Public Transport (Mexico)**
+   - **Mexico City Metro Line 12**: The bank was involved in financing the construction of Line 12 of the Mexico City Metro, which improves public transportation in one of the world’s largest cities.
+
+### Sustainable Finance Initiatives
+
+1. **Green Bonds and Sustainable Financing**:
+   - Crédit Agricole CIB is a leader in green bonds and sustainable finance. It has been involved in numerous green bond issuances globally, financing projects that promote environmental sustainability and combat climate change.
+
+2. **Social Impact Projects**:
+   - The bank has also financed various social impact projects, including affordable housing, healthcare facilities, and education infrastructure, contributing to social development and improving quality of life in various regions.
+
 ### Conclusion
 
-Crédit Agricole CIB's involvement in major projects in Paris demonstrates its significant role in the city's development across multiple sectors. From financing large-scale real estate developments and infrastructure projects to promoting sustainable urban initiatives, the bank contributes to Paris's growth and modernization. Its expertise in corporate finance, advisory services, and sustainable finance underscores its importance in supporting both public and private sector initiatives in one of Europe's most dynamic cities.
+Crédit Agricole CIB's involvement in major projects around the world showcases its extensive reach and expertise in financing large-scale, impactful initiatives. From renewable energy projects and infrastructure development to sustainable finance and social impact investments, the bank plays a crucial role in supporting global development and promoting sustainability. Its diverse portfolio of projects highlights its commitment to fostering economic growth, improving infrastructure, and addressing environmental and social challenges worldwide.
