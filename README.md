@@ -56,7 +56,7 @@ Crédit Agricole CIB played a significant role in the financing of the Marina Ba
    - The bank provided advisory services on the optimal debt structure for the project, ensuring that the financing terms were favorable and sustainable for the project's long-term viability.
    - This included advising on the mix of debt instruments, interest rates, and repayment schedules to align with the projected cash flows and financial performance of Marina Bay Sands.
 
-### Project Overview
+### Singapore Projects Overview
 
 Marina Bay Sands is a major integrated resort developed by Las Vegas Sands Corporation. It features a hotel, casino, convention and exhibition facilities, theaters, entertainment venues, restaurants, and a large retail complex. The resort's most iconic feature is its three hotel towers connected by the Sands SkyPark, which offers panoramic views of Singapore.
 
@@ -79,9 +79,8 @@ Marina Bay Sands is a major integrated resort developed by Las Vegas Sands Corpo
 2. **Sustainable Finance**:
    - Although not specifically labeled as a green project, the involvement in large-scale, high-profile developments like Marina Bay Sands can pave the way for future sustainable financing initiatives, as banks and developers increasingly focus on incorporating sustainable practices in their projects.
 
-Crédit Agricole CIB, as part of the larger Crédit Agricole Group, has been involved in various significant projects in Paris and throughout France. These projects often span multiple sectors, including real estate development, infrastructure, and sustainable finance. Here are some notable areas and examples of their involvement:
 
-### Major Projects and Areas of Involvement
+### Major Projects and Areas of Involvement in Paris and France.
 
 1. **Real Estate Development**:
    - **La Défense Business District**: Crédit Agricole has been active in financing developments in La Défense, Paris's major business district. Projects in this area often include high-rise office buildings, commercial spaces, and mixed-use developments.
@@ -113,7 +112,16 @@ Crédit Agricole CIB, as part of the larger Crédit Agricole Group, has been inv
 4. **Greater Paris Metropolis**:
    - As part of the broader Grand Paris initiative, Crédit Agricole CIB has been involved in financing various infrastructure projects aimed at transforming the metropolitan area, improving transportation, housing, and economic opportunities.
 
-Crédit Agricole CIB, as a prominent global corporate and investment bank, has been involved in numerous major projects worldwide. These projects span various sectors including infrastructure, energy, real estate, and sustainable finance. Here are some notable examples:
+Crédit Agricole CIB, as a prominent global corporate and investment bank, has been involved in numerous major projects worldwide. 
+
+These projects span various sectors including
+
+- Infrastructure
+- energy
+- real estate, and 
+- sustainable finance. 
+
+Here are some notable examples:
 
 ### Europe
 
